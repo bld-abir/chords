@@ -220,4 +220,4 @@ https://tabs.ultimate-guitar.com/tab/ed_sheeran/kiss_me_chords_1094116
 * Chords : https://tabs.ultimate-guitar.com/tab/the-cab/angel-with-a-shotgun-chords-1091399
 
 ## Avava inouva — Idir
-* Chords : [le permalink ṭwil]'https://github.com/abirum/chords/blob/e1b16070e71a0c6b352afbd5013670157b58c7da/Avava%20Inouva%20%E1%8D%A0%20Idir/Chords%20Avava%20Inouva%20%E1%8D%A0%20Idir)
+* Chords : [le permalink ṭwil](https://github.com/abirum/chords/blob/e1b16070e71a0c6b352afbd5013670157b58c7da/Avava%20Inouva%20%E1%8D%A0%20Idir/Chords%20Avava%20Inouva%20%E1%8D%A0%20Idir)
