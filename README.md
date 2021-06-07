@@ -201,22 +201,23 @@ https://tabs.ultimate-guitar.com/tab/ed_sheeran/kiss_me_chords_1094116
 ## Keeping me alive — Jonathan Roy
 * Chords : https://amdm.ru/akkordi/jonathan_roy/171317/keeping_me_alive/
 
-Uncover
-https://tabs.ultimate-guitar.com/tab/zara-larsson/uncover-chords-1700979
+## Uncover
+* Chords : https://tabs.ultimate-guitar.com/tab/zara-larsson/uncover-chords-1700979
 
-I let your smile fade away — loving caliber
-https://tabs.ultimate-guitar.com/tab/loving-caliber/i-let-your-smile-fade-away-chords-2773999
+## I let your smile fade away — loving caliber
+* Chords : https://tabs.ultimate-guitar.com/tab/loving-caliber/i-let-your-smile-fade-away-chords-2773999
 
-Still thinking of you
-https://tabs.ultimate-guitar.com/tab/loving-caliber/still-thinking-of-you-chords-2698578
+## Still thinking of you
+* Chords : https://tabs.ultimate-guitar.com/tab/loving-caliber/still-thinking-of-you-chords-2698578
 
-Pandemonium — Mondays & Hanna Stone
-https://tabs.ultimate-guitar.com/tab/mondays/pandemonium-chords-2360293
+## Pandemonium — Mondays & Hanna Stone
+* Chords : https://tabs.ultimate-guitar.com/tab/mondays/pandemonium-chords-2360293
 
-Clouds — Zack
-https://tabs.ultimate-guitar.com/tab/zach-sobiech/clouds-chords-1248851
+## Clouds — Zack
+* Chords : https://tabs.ultimate-guitar.com/tab/zach-sobiech/clouds-chords-1248851
 
-Angel with a shotgun — The Cab
-https://tabs.ultimate-guitar.com/tab/the-cab/angel-with-a-shotgun-chords-1091399
+## Angel with a shotgun — The Cab
+* Chords : https://tabs.ultimate-guitar.com/tab/the-cab/angel-with-a-shotgun-chords-1091399
 
-Avava inouva — Idir
+## Avava inouva — Idir
+* Chords : [le permalink ṭwil]'https://github.com/abirum/chords/blob/e1b16070e71a0c6b352afbd5013670157b58c7da/Avava%20Inouva%20%E1%8D%A0%20Idir/Chords%20Avava%20Inouva%20%E1%8D%A0%20Idir)
