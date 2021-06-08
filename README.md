@@ -140,7 +140,7 @@ https://tabs.ultimate-guitar.com/tab/ed_sheeran/kiss_me_chords_1094116
 
 ## Falling in love at a coffee shop
 
-## Frank Sinatra — Fly me to the moon
+## Frank Sinatra — Fly me to the moon (capo 3)
 * Chords : https://tabs.ultimate-guitar.com/tab/frank_sinatra/fly_me_to_the_moon_chords_335196
 
 ## Jason Mraz ft. Colbie Caillat — Lucky
