@@ -127,6 +127,8 @@ https://tabs.ultimate-guitar.com/tab/ed_sheeran/kiss_me_chords_1094116
 * Chords : https://tabs.ultimate-guitar.com/tab/eagles/hotel_california_chords_46190
 
 ## Hallelujah
+* Chords : https://tabs.ultimate-guitar.com/tab/jeff-buckley/hallelujah-chords-198052
+* à fusionner avec : https://tabs.ultimate-guitar.com/tab/leonard-cohen/hallelujah-tabs-621988
 
 ## Matthew Mole — take yours, i'll take mine
 
