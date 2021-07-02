@@ -1,7 +1,7 @@
 # chords
 
-## -+ - Atina & Cali & El Dandee
-* Chords : 
+## -+ — Atina & Cali & El Dandee
+* Chords : https://www.acordesdcanciones.com/2019/12/aitana-cali-y-el-dandee-facil.html
 
 ## Halim Yousfi — Win 
 * Vidéo originale : https://youtu.be/Nx6GmSYQzvc
