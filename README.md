@@ -1,5 +1,14 @@
 # chords
 
+## Daisy —
+* Vidéo Originale :
+* Chord : 
+
+
+## Kan ɛanna ṭaḥoun — Fayrouz
+* Vidéo Originale : 
+* Chords : 
+
 ## -+ — Atina & Cali & El Dandee
 * Chords : https://www.acordesdcanciones.com/2019/12/aitana-cali-y-el-dandee-facil.html
 
