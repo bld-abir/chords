@@ -118,6 +118,8 @@ https://tabs.ultimate-guitar.com/tab/ed_sheeran/kiss_me_chords_1094116
 * Chords : https://tabs.ultimate-guitar.com/tab/james-tw/say-love-chords-2355505
 
 ## Coldplay — Fix you
+* Chant : Dalal tous les couplets jusqu'au dernier où je la rejoins. 
+* Tab : 3
 * Chords : https://tabs.ultimate-guitar.com/tab/coldplay/fix_you_chords_1863305
 
 ## Pocket full of stars 
